@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to fly without shooting
 - 💞️ I’m looking to collaborate on the NATO
 - 📫 How to reach me Look in the Sky
-- 😄 Pronouns: Apache Kampf Hubschrauber
+- 😄 Pronouns: Apache KApmf Hubschrauber
 - ⚡ Fun fact: Ich hab mehr als ein Rotorblatt ;)
 
 <!---
